@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @e123-ericomtech
+- 👋 Hi, I’m e123-ericomtech
 - 👀 I’m interested in learning programming and software engineering, and then cyber securing, website development, and IOT
 - 🌱 I’m currently learning python programming language
 - 💞️ I’m looking to collaborate on developing and acomplishing projects
