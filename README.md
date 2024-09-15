@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on developing and acomplishing projects
 - 📫 How to reach me, email at ericogoso3@gmail.com
 - 😄 Pronouns: FOCUS
-- ⚡ Fun fact:ITS MY HOBBY, BUT ALWAYS FOCUSED WHEN IT COMES TO WORIK
+- ⚡ Fun fact:ITS MY HOBBY, BUT ALWAYS FOCUSED WHEN IT COMES TO WORK
 
